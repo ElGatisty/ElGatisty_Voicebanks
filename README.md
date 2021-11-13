@@ -1,3 +1,2 @@
 # ElGatisty_Voicebanks
-Me dan Créditos
-Este VoiceBanks esta Variado XD
+Me dan Créditos, este VoiceBanks esta Variado XD
